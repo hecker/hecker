@@ -1,4 +1,4 @@
-I am Jan. Founder of [vamos!](https://getvamos.app) and business informatics student at the University of Mannheim.
+I am Jan. Founder of [vamos!](https://getvamos.app) and business informatics student at the University of Mannheim. Currently working on product and moderation at [Jodel](https://jodel.com/).
 
 > /ˈæm.ə.t̬ʃɚ/
 >
